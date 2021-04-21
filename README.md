@@ -1,5 +1,6 @@
 ### Hi there 👋
 ### Im rosko / nathan
-### Learning C++ signed up to ask for help!
+### the most pro gamer! 
 
-### If you are looking at my profile you are pog
+
+### Pokemon enthusiest!
